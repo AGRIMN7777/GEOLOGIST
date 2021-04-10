@@ -1,2 +1,2 @@
-# GEOLOGIST
-PLAY WITH BALLLLLLLLLSSSSSSS!!!!!
+# Geologist
+Geologist Project
